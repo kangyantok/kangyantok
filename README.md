@@ -1,0 +1,2 @@
+# kangyantok
+sederhana dan simpel
